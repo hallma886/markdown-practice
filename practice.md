@@ -8,3 +8,6 @@
 [Python for beginners](https://www.youtube.com/watch?v=kqtD5dpn9C8)
 
 ## About Me
+
+- **I am really good at climing trees**
+- *I have 2 dogs at my dads house and 1 dog and 2 cats at my moms house*
